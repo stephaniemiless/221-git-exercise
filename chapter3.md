@@ -1,4 +1,4 @@
-# Chapter 3
+# Steph's third step
 
 Mae’s eyes sparkled. “Carnegie is a wonderful place. But remember, the journey is just as important as the destination. Take time to see the world around you. ”
 Steph nodded and thanked Mae for her wise words. She continued her journey, feeling more confident. As she walked further, the path began to twist and turn through the forest. The trees were tall and thick, and the sounds of nature surrounded her. Suddenly, she heard a loud rustling noise. Her heart raced. What could it be?
